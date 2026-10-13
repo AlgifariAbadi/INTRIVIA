@@ -11,3 +11,5 @@
 ## Kesan Pesan Cluster [5] Sejauh Ini 
 [Saya mendapati Cluster 5 di INTRIVIA ,Dicluster itu saya mendapat banyak teman asik dan baik,bisa berkenalan dengan 1 cluster sekaligus kakak Mentor, dan fgd yang ga kalah serunya, seperti ngumpul bareng main games,jalan jalan ke kayu tangan ]
 
+## Harapan Kuliah 
+[Harapan Saya selama berkuliah di Fakultas Ilmu Komputer , Saya dapat cepat beradaptasi dengan lingkungan kampus,memperluas relasi,dan bisa mendapat nilai dan ipk yang tinggi dengan lulus tepat waktu]
